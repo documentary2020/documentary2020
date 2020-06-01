@@ -6,7 +6,10 @@
 
 ## 影片观看
 [在线观看与下载-OneDrive](https://hostlocmjj-my.sharepoint.com/:v:/g/personal/dnchen46_uoe_men/EQerm-YjDZ5GuX1OMQ-8jGUBcRx_YhvarHEYkr-mE23jtg?e=bv34po)
-[百度网盘下载-BaiduNetdisk]
+
+本页网址：documentary2020.github.io
+快速链接：cutt.ly/gyjlp （公益纪录片）
+欢迎分享。
 
 
 
