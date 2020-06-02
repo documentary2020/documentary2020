@@ -5,10 +5,16 @@
 ![Image](https://s1.ax1x.com/2020/06/02/tY9hb4.jpg)
 
 ## 影片观看
-[在线观看与下载-OneDrive](https://hostlocmjj-my.sharepoint.com/:v:/g/personal/dnchen46_uoe_men/EQerm-YjDZ5GuX1OMQ-8jGUBcRx_YhvarHEYkr-mE23jtg?e=bv34po)
+[在线观看与下载-OneDrive](https://hostlocmjj-my.sharepoint.com/:v:/g/personal/dnchen46_uoe_men/EQerm-YjDZ5GuX1OMQ-8jGUBcRx_YhvarHEYkr-mE23jtg?e=R5988L)
 
-本页网址：documentary2020.github.io
-快速链接：cutt.ly/gyjlp （公益纪录片）
+本页网址：documentary2020.github.io/documentary2020
+
+
+
+快速链接：[cutt.ly/kuangmin](cutt.ly/kuangmin) （“矿民”）
+
+
+
 欢迎分享。
 
 
