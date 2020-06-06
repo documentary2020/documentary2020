@@ -7,5 +7,5 @@
 ## 影片观看或分享
 在线观看/下载 [存储于OneDrive的拷贝](https://hostlocmjj-my.sharepoint.com/:v:/g/personal/dnchen46_uoe_men/EQerm-YjDZ5GuX1OMQ-8jGUBcRx_YhvarHEYkr-mE23jtg?e=R5988L)
 
-[本页短URL](shortenurl.md)    [二维码分享](qrcode.md)   [剧照相册](album_kuangmin.md)
+······[本页短URL](shortenurl.md)······[二维码分享](qrcode.md)······[剧照相册](album_kuangmin.md)······
 
