@@ -2,7 +2,9 @@
 
 精选导演摄制中所见 用摄影展现真实生活
 
-[高清版本请参阅album_kuangmin_hd](album_kuangmin_hd.md)
+[高清版本请参阅album_kuangmin_hd
+
+（可能产生更多下载数据）](album_kuangmin_hd.md)
 
 [![t6QSZn.md.png](https://s1.ax1x.com/2020/06/06/t6QSZn.md.png)](https://imgchr.com/i/t6QSZn)
 
