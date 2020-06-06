@@ -2,7 +2,7 @@
 
 [蒋能杰](https://m.weibo.cn/profile/2035410364) 导演  作品
 
-![Image](https://s1.ax1x.com/2020/06/02/tY9hb4.jpg)
+[![t6lvEn.md.jpg](https://s1.ax1x.com/2020/06/06/t6lvEn.md.jpg)](https://imgchr.com/i/t6lvEn)
 
 ## 影片观看
 在线观看/下载 [OneDrive](https://hostlocmjj-my.sharepoint.com/:v:/g/personal/dnchen46_uoe_men/EQerm-YjDZ5GuX1OMQ-8jGUBcRx_YhvarHEYkr-mE23jtg?e=R5988L)
@@ -18,13 +18,6 @@ Shorten URL：[cutt.ly/kuangmin](cutt.ly/kuangmin)
 ## 矿民相册
 [剧照相册](album_kuangmin.md)
 
-
-
-*短链接可能被微信等屏蔽，请转移到浏览器打开。
-
-
-
-欢迎分享。
 
 
 
