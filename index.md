@@ -11,7 +11,8 @@
 ## 分享影片
 本页网址：documentary2020.github.io/documentary2020
 
-
+## 矿民相册
+[剧照相册](album_kuangmin.md)
 
 快速链接：[cutt.ly/kuangmin](cutt.ly/kuangmin) （“矿民”）
 
