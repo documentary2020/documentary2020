@@ -19,3 +19,11 @@
 [![t6lXHs.jpg](https://s1.ax1x.com/2020/06/06/t6lXHs.jpg)](https://imgchr.com/i/t6lXHs)
 [![t6193T.jpg](https://s1.ax1x.com/2020/06/06/t6193T.jpg)](https://imgchr.com/i/t6193T)
 [![t61CgU.jpg](https://s1.ax1x.com/2020/06/06/t61CgU.jpg)](https://imgchr.com/i/t61CgU)
+
+图像存储于[imgchr]((https://imgchr.com/)。
+
+影片观看/下载请参阅：[存储于OneDrive的拷贝](https://hostlocmjj-my.sharepoint.com/:v:/g/personal/dnchen46_uoe_men/EQerm-YjDZ5GuX1OMQ-8jGUBcRx_YhvarHEYkr-mE23jtg?e=R5988L)
+
+回到[Homepage](index.md)
+
+这个简易的网站由观众搭建。
