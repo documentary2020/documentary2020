@@ -9,12 +9,16 @@
 
 
 ## 分享影片
-本页网址：documentary2020.github.io/documentary2020
+本页网址：[documentary2020.github.io/documentary2020](documentary2020.github.io/documentary2020)
+
+Shorten URL：[cutt.ly/kuangmin](cutt.ly/kuangmin) 
+
+[二维码分享](qrcode.md)
 
 ## 矿民相册
 [剧照相册](album_kuangmin.md)
 
-快速链接：[cutt.ly/kuangmin](cutt.ly/kuangmin) （“矿民”）
+
 
 *短链接可能被微信等屏蔽，请转移到浏览器打开。
 
